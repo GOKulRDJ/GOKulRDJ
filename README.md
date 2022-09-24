@@ -1,5 +1,5 @@
 </p>
-<a href="https://github.com/GOKulRDJ"><img src="https://readme-typing-svg.herokuapp.com/?lines=𝓗𝓘%20𝓘𝓐𝓜%20;𝓡.𝓖𝓞𝓚𝓤𝓛%20+ 𝓝𝓐𝓣𝓗%20;Always%20learning%20new%20technologies&font=Pacifico&center=true&width=950&height=120&color=000888&vCenter=true&size=45%22"></a> </p>
+<a href="https://github.com/GOKulRDJ"><img src="https://readme-typing-svg.herokuapp.com/?lines=𝓗𝓘%80;𝓘%20𝓐𝓜%20𝓡.𝓖𝓞𝓚𝓤𝓛%20𝓝𝓐𝓣𝓗%20;𝓐𝓛𝓦𝓐𝓨𝓢%20𝓛𝓔𝓐𝓡𝓝𝓘𝓝𝓖%20𝓝𝓔𝓦%20𝓣𝓔𝓒𝓗𝓝𝓞𝓛𝓞𝓖𝓨𝓢%20&font=Pacifico&center=true&width=1100&height=120&color=000888&vCenter=true&size=45%22"></a> </p>
 
 <h3 align="center">𝓘 𝓐𝓜 𝓐 𝓔𝓣𝓗𝓘𝓒𝓐𝓛 𝓗𝓐𝓒𝓚𝓔𝓡</h3>
 <p align="centre"> <img src="https://telegra.ph/file/ddcd3012a3dda9c5d04f7.jpg"
@@ -8,7 +8,7 @@
 
 - 💬 Ask me about **https://t.me/Im_over_thinker**
 
-- 📫 How to reach me **mukeshprajeen@gmail.com**
+- 📫 How to reach me **gokulvivasaye@gmail.com**
 <h3 align="left">🇨‌🇴‌🇳‌🇳‌🇪‌🇨‌🇹‌ 🇼‌🇮‌🇹‌🇭‌ 🇲‌🇪‌ 🇮‌🇳‌:</h3>
 <p align="left">
 <a href="https://instagram.com/monimukesh007" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/instagram.svg" alt="monimukesh007" height="30" width="40" /></a>
