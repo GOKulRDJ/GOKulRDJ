@@ -11,7 +11,7 @@
 - 💬 Ask me about **https://t.me/Im_over_thinker**
 
 - 📫 How to reach me **gokulvivasaye@gmail.com**
-<h3 align="left">🇨‌🇴‌🇳‌🇳‌🇪‌🇨‌🇹‌ 🇼‌🇮‌🇹‌🇭‌ 🇲‌🇪‌ 🇮‌🇳‌:</h3>
+<h3 align="left"> :</h3>
 <p align="left">
 <a href="https://instagram.com/monimukesh007" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/instagram.svg" alt="monimukesh007" height="30" width="40" /></a>
 </p>
