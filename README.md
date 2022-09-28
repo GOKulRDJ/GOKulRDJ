@@ -1,5 +1,5 @@
 </p>
-<a href="https://github.com/GOKulRDJ"><img src="https://readme-typing-svg.herokuapp.com/?lines=𝓗𝓘%80;𝓘%20𝓐𝓜%20𝓡.𝓖𝓞𝓚𝓤𝓛%20𝓝𝓐𝓣𝓗%20;𝓐𝓛𝓦𝓐𝓨𝓢%20𝓛𝓔𝓐𝓡𝓝𝓘𝓝𝓖%20𝓝𝓔𝓦%20𝓣𝓔𝓒𝓗𝓝𝓞𝓛𝓞𝓖𝓨𝓢%20&font=Pacifico&center=true&width=1100&height=120&color=000888&vCenter=true&size=45%22"></a> </p>
+<a href="https://github.com/GOKulRDJ"><img src="https://readme-typing-svg.herokuapp.com/?lines=𝓗𝓘%20;𝓘%20𝓐𝓜%20𝓡.𝓖𝓞𝓚𝓤𝓛%20𝓝𝓐𝓣𝓗%20;𝓐𝓛𝓦𝓐𝓨𝓢%20𝓛𝓔𝓐𝓡𝓝𝓘𝓝𝓖%20𝓝𝓔𝓦%20𝓣𝓔𝓒𝓗𝓝𝓞𝓛𝓞𝓖𝓨𝓢%20&font=Pacifico&center=true&width=1100&height=120&color=000888&vCenter=true&size=45%22"></a> </p>
 
 <h3 align="center">𝓘 𝓐𝓜 𝓐 𝓔𝓣𝓗𝓘𝓒𝓐𝓛 𝓗𝓐𝓒𝓚𝓔𝓡</h3>
 <p align="centre"><img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/2772bbaa-d8f0-4f6c-bfea-0bd41cf6ee32/deijf7v-568750d6-9fa5-4557-a15c-e1bd35bca00d.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzI3NzJiYmFhLWQ4ZjAtNGY2Yy1iZmVhLTBiZDQxY2Y2ZWUzMlwvZGVpamY3di01Njg3NTBkNi05ZmE1LTQ1NTctYTE1Yy1lMWJkMzViY2EwMGQucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Uu6PeDqUtaL99eq6weq5Qp3UtE8j4jaxoEAFIqhFFzg">
